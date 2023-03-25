@@ -1,5 +1,3 @@
-**hiya, i'm Juusto**
+hi i'm juusto
 <br />
-a :3
-<br /><br />
 🇫🇮
